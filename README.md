@@ -46,9 +46,9 @@
 
 ## 📫 Connect With Me  
 
-- 📱 WhatsApp: (add your number)
-- 💼 LinkedIn: (add your profile)
-- 📩 Email: (add your email)
+- 📱 WhatsApp: (+201095561698)
+- 💼 LinkedIn:(https://www.linkedin.com/in/youssef-rafat-0b266b39b?utm_source=share_via&utm_content=profile&utm_medium=member_android)
+- 📩 Email: (yhjazy162@gmail.com)
 
 ---
 
